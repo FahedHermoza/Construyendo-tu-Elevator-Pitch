@@ -1,4 +1,5 @@
 # Construyendo Pitch Elevator 
+[![forthebadge](https://forthebadge.com/images/badges/certified-snoop-lion.svg)](https://forthebadge.com)[![forthebadge](https://forthebadge.com/images/badges/makes-people-smile.svg)](https://forthebadge.com)
 ______
 
 Cuanto más conocidos o cuenta más presencia online tengas, mejores serán las oportunidades. No sabemos de donde vendrán las oportunidades y la mejor forma de no perderla es tener un a buena presencia online y red de contactos.
